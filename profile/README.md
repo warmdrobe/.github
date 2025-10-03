@@ -1,5 +1,5 @@
 ## We make stuffs
-founded by Pham Hoang Tuan Kha
+
 
 <!--
 
